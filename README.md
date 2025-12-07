@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @tm456-43
-- 👀 I’m interested in LoL
+- 👀 I’m interested in HK star rail GS impact
 - 🌱 I’m currently learning c++
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me QQ:2957666268
